@@ -114,4 +114,4 @@ Masline is more than just a **B2B electronic parts distributor**. We are a long-
 
 ---
 
-Order with confidence from Masline, your trusted [**B2B electronic parts distributor**](https://www.masline.com/library/) , reliable **B2B electronic components supplier**, and proven **authorized electronic parts distributor**. Get genuine components, competitive pricing, and dependable delivery to keep your production running without disruption.
+Order with confidence from Masline, your trusted [**B2B electronic parts distributor**](https://www.masline.com/services/) , reliable **B2B electronic components supplier**, and proven **authorized electronic parts distributor**. Get genuine components, competitive pricing, and dependable delivery to keep your production running without disruption.
